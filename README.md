@@ -1,3 +1,3 @@
 # Group-8-Presentation
 Project 3
-Jensih Patel and Easter Gbortoe
+Jenish Patel and Easter Gbortoe
